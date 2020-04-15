@@ -1,3 +1,3 @@
 # grasp
 
-Things I grasp as I grow older.
+Things I've begun to grasp.
